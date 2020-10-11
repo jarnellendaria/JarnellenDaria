@@ -1,6 +1,6 @@
 ### What Up? Jarnellen here!✨
-
-I'm a BS Information Systems student of West Visayas State University.
+From Roxas City, Capiz, Philippines
+I am taking up Bachelor of Science in Information Systems at West Visayas State University.
 
 
 ### 🌱 I’m currently learning ...
